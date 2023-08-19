@@ -12,8 +12,8 @@
 
 - 📫 How to reach me **mohd.adeel.mughal@outlook.com**
 
-- 📄 My Resume [[https://drive.google.com/file/d/1ef70oHYmbSpSDLqcpxBuFOJVhOyDhbiA/view?usp=share_link](https://drive.google.com/file/d/1hxO_ZSXvflzehxRxBf_1O-kkI0gtR-Aq/view?usp=drive_link)]
-
+- 📄 My Resume https://drive.google.com/file/d/1G2tdj18xQmLQEKWiVNVbe9VuMCIhrQ1W/view?usp=drive_link 
+  
 - ⚡ Fun fact **Cricket Die Hard Fan**
 
 <h3 align="left">Connect with me:</h3>
